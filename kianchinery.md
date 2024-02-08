@@ -1,5 +1,7 @@
 <h1> kian chinery </h1>
-![alt text](image.jpg)
+
+![alt text](th.jpg)
+
 kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. 
 kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. 
 kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. kian chinery. 
